@@ -1,0 +1,2 @@
+# yayan
+jangan lupa bahagia 🤗
